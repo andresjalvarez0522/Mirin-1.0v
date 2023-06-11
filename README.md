@@ -9,6 +9,6 @@ Mirin-App es un ecoomerce especializado en la venta de ropa Old Money exclusivam
  Para consultas, dudas o cualquier otra información, no dudes en contactar al creador de Mirin-App a través de las siguientes redes sociales:
 
  - Instagram: [@adez_alvarez](https://www.instagram.com/adez_alvarez/)
- - Telegram: @Adez_Alvarez
+ - Telegram: [@Adez_Alvarez](https://t.me/Adez_Alvarez)
 
  ¡Únete a Mirin-App y descubre la elegancia intemporal de la moda Old Money!
